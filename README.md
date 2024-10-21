@@ -5,4 +5,4 @@ https://docs.google.com/document/d/1Rj1LrN68N6-5--JcKzqCs9q-Ct_fzyQWRPz_7n0MxYs/
 
 
 Презентация CyberCamp2024 -
-https://drive.google.com/file/d/1GGBZYgWzUC9vwUgI7hf9Nd5D80XEsJXH/view?usp=drivesdk
+https://drive.google.com/file/d/1KeZyZFkY0JtCjBcZ0A3vk2ADQJJV_9dJ/view?usp=drivesdk
