@@ -9,3 +9,6 @@ https://drive.google.com/file/d/1KeZyZFkY0JtCjBcZ0A3vk2ADQJJV_9dJ/view?usp=drive
 
 Документ по презентации - 
 https://docs.google.com/document/d/1ll09Ttbkgnne3yCGrzj1h6Pyzclmjrf4czaSxvOKKyU/edit?usp=drivesdk
+
+ОБЖ -
+https://docs.google.com/document/d/1UzvYziM8_XuT1gHeT9WIZ0JIoz2MxWJXs1sw2wc2H7Y/edit?usp=drivesdk
