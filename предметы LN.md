@@ -18,3 +18,6 @@ https://docs.google.com/document/d/1IK4ast_EVgFMAEnH3rALyj0JnNHZp9jIIeYAsHB8wHE/
 
 регулирование рынка иб - 
 https://docs.google.com/document/d/14xE3cLiLrPWs7ljlNTO2QQtWoffwAcAblOTAbLNWDwU/edit?usp=drivesdk
+
+конспект -
+https://drive.google.com/file/d/1GOrY6USJwlQCfBWslh-mnjsVta5A0Ezz/view?usp=drivesdk
