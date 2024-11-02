@@ -12,3 +12,9 @@ https://docs.google.com/document/d/1ll09Ttbkgnne3yCGrzj1h6Pyzclmjrf4czaSxvOKKyU/
 
 Доклад по ОБЖ -
 https://docs.google.com/document/d/1yTUwFklmmWdPU2bVLwVlg_7Ro_jAeZLhAqIZMnDVIj4/edit?usp=drivesdk
+
+stepik -
+https://docs.google.com/document/d/1IK4ast_EVgFMAEnH3rALyj0JnNHZp9jIIeYAsHB8wHE/edit?usp=drivesdk
+
+регулирование рынка иб - 
+https://docs.google.com/document/d/14xE3cLiLrPWs7ljlNTO2QQtWoffwAcAblOTAbLNWDwU/edit?usp=drivesdk
