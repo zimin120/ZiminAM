@@ -21,3 +21,6 @@ https://docs.google.com/document/d/14xE3cLiLrPWs7ljlNTO2QQtWoffwAcAblOTAbLNWDwU/
 
 конспект -
 https://drive.google.com/file/d/1ljYR1MZAKzbyys25qinDP8RQi-yr-gAM/view?usp=drivesdk
+
+python контрольная - 
+https://docs.google.com/document/d/1qmvJzENz512RcPUinJjRlABefByCTP6mWL4m_EVN3ug/edit?usp=drivesdk
