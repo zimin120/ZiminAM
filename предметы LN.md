@@ -24,3 +24,6 @@ https://drive.google.com/file/d/1ljYR1MZAKzbyys25qinDP8RQi-yr-gAM/view?usp=drive
 
 python контрольная - 
 https://docs.google.com/document/d/1qmvJzENz512RcPUinJjRlABefByCTP6mWL4m_EVN3ug/edit?usp=drivesdk
+
+python конспект -
+https://docs.google.com/document/d/1Lucnb4xyKUguAg0qYUOEUV_UF9InmoFieIhpkQ9K_Gk/edit?usp=drivesdk
